@@ -2,7 +2,7 @@
 
 ### Picture 1 ![385531659_2323849267976968_5787314160834688799_n](https://github.com/ZerotoHeroDaimaiKub/EngSpeakingTest/assets/54489997/42a80198-4be4-404f-9118-54eb26c047df)
 
-Person 1 (P1): Today was a wonderful day. While walking around the crowded city, I had the good fortune to come across an extremely talented street musician. He was a master at the guitar, and it was amazing how exactly and passionately he played the chords. I stood there, amazed at his performance, feeling as though I were at a city concert.
+Person 1 (P1): Today was a wonderful day. While walking around the crowded city, I had the good fortune to come across talented street musician. He was a master at the guitar, and it was amazing how passionately he played the chords. I stood there, amazed at his performance.
 
 His fingers played the strings with skill, producing melodies that had a profound impact on my soul. It was obvious that he had spent many hours perfecting his skill.
 
