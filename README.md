@@ -2,11 +2,11 @@
 
 ### Picture 1 ![385531659_2323849267976968_5787314160834688799_n](https://github.com/ZerotoHeroDaimaiKub/EngSpeakingTest/assets/54489997/42a80198-4be4-404f-9118-54eb26c047df)
 
-Person 1 (P1): Today was a remarkable day. As I walked down the bustling city street, I couldn't believe my luck when I stumbled upon that incredibly talented street musician. His guitar skills were out of this world. The way he strummed those chords with such precision and emotion was nothing short of mesmerizing. I stood there, completely captivated by his performance, feeling like I was transported to a concert hall amidst the hustle and bustle of the city.
+Person 1 (P1): Today was an amazing day. While walking in the busy city, I was lucky to find an incredibly talented street musician. His guitar skills were extraordinary, and the way he played the chords with precision and emotion was mesmerizing. I stood there, captivated by his performance, feeling like I was at a concert in the city.
 
-His fingers danced across the strings, conjuring melodies that seemed to speak to the deepest corners of my soul. It was evident that he had dedicated countless hours to mastering his craft. The passion in his eyes was unmistakable, and it radiated through his music, drawing in passersby like moths to a flame.
+His fingers moved gracefully on the strings, creating melodies that touched my soul deeply. It was clear he had put in countless hours mastering his craft. His passion was evident in his eyes and radiated through his music, attracting onlookers like a magnet.
 
-I couldn't help but be in awe of this street musician who had turned an ordinary street corner into a stage. He wasn't just playing a guitar; he was creating an experience, a moment of pure magic in the midst of our daily routines.
+I was in awe of this street musician who turned a regular street corner into a stage. He wasn't just playing a guitar; he was crafting a magical moment in our everyday lives.
 
 Person 2 (P2): You won't believe what happened next! As I continued to watch the street musician, I noticed that others around me were just as enchanted as I was. His choice of songs was impeccable, evoking a sense of nostalgia and warmth. The melodies he produced resonated with the crowd, bringing smiles to our faces and evoking memories of days gone by.
 
