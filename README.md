@@ -2,11 +2,11 @@
 
 ### Picture 1 ![385531659_2323849267976968_5787314160834688799_n](https://github.com/ZerotoHeroDaimaiKub/EngSpeakingTest/assets/54489997/42a80198-4be4-404f-9118-54eb26c047df)
 
-Person 1 (P1): Today was an amazing day. While walking in the busy city, I was lucky to find an incredibly talented street musician. His guitar skills were extraordinary, and the way he played the chords with precision and emotion was mesmerizing. I stood there, captivated by his performance, feeling like I was at a concert in the city.
+Person 1 (P1): It was a fantastic day today. I was fortunate to come across a very great street musician while strolling around the crowded city. His guitar playing abilities were exceptional, and it was astounding how precisely and passionately he executed the chords. I was astounded by his performance and had the impression that I was in a city concert as I stood there.
 
-His fingers moved gracefully on the strings, creating melodies that touched my soul deeply. It was clear he had put in countless hours mastering his craft. His passion was evident in his eyes and radiated through his music, attracting onlookers like a magnet.
+His fingers played the strings with finesse, producing melodies that had a profound impact on my soul. It was obvious that he had spent many hours perfecting his skill. His passion was palpable in his eyes, and it emanated through his music, drawing others to him like a magnet.
 
-I was in awe of this street musician who turned a regular street corner into a stage. He wasn't just playing a guitar; he was crafting a magical moment in our everyday lives.
+I was amazed by the street performer who transformed an ordinary street corner into a stage. He was creating a magical moment in our daily lives, not just playing the guitar.
 
 Person 2 (P2): You won't believe what happened next! As I continued to watch the street musician, I noticed that others around me were just as enchanted as I was. His choice of songs was impeccable, evoking a sense of nostalgia and warmth. The melodies he produced resonated with the crowd, bringing smiles to our faces and evoking memories of days gone by.
 
