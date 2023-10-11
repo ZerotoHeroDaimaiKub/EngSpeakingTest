@@ -2,9 +2,9 @@
 
 ### Picture 1 ![385531659_2323849267976968_5787314160834688799_n](https://github.com/ZerotoHeroDaimaiKub/EngSpeakingTest/assets/54489997/42a80198-4be4-404f-9118-54eb26c047df)
 
-Person 1 (P1): It was a fantastic day today. I was fortunate to come across a very great street musician while strolling around the crowded city. His guitar playing abilities were exceptional, and it was astounding how precisely and passionately he executed the chords. I was astounded by his performance and had the impression that I was in a city concert as I stood there.
+Person 1 (P1): Today was a wonderful day. While walking around the crowded city, I had the good fortune to come across an extremely talented street musician. He was a master at the guitar, and it was amazing how exactly and passionately he played the chords. I stood there, amazed at his performance, feeling as though I were at a city concert.
 
-His fingers played the strings with finesse, producing melodies that had a profound impact on my soul. It was obvious that he had spent many hours perfecting his skill. His passion was obvious in his eyes, and it came through his music, drawing others to him like a magnet.
+His fingers played the strings with skill, producing melodies that had a profound impact on my soul. It was obvious that he had spent many hours perfecting his skill.
 
 I was amazed by the street performer who transformed an ordinary street corner into a stage. He was creating a magical moment in our daily lives, not just playing the guitar.
 
