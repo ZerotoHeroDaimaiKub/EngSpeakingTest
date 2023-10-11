@@ -4,7 +4,7 @@
 
 Person 1 (P1): It was a fantastic day today. I was fortunate to come across a very great street musician while strolling around the crowded city. His guitar playing abilities were exceptional, and it was astounding how precisely and passionately he executed the chords. I was astounded by his performance and had the impression that I was in a city concert as I stood there.
 
-His fingers played the strings with finesse, producing melodies that had a profound impact on my soul. It was obvious that he had spent many hours perfecting his skill. His passion was palpable in his eyes, and it emanated through his music, drawing others to him like a magnet.
+His fingers played the strings with finesse, producing melodies that had a profound impact on my soul. It was obvious that he had spent many hours perfecting his skill. His passion was obvious in his eyes, and it came through his music, drawing others to him like a magnet.
 
 I was amazed by the street performer who transformed an ordinary street corner into a stage. He was creating a magical moment in our daily lives, not just playing the guitar.
 
